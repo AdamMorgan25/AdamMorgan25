@@ -1,0 +1,5 @@
+- 👋 Hi, I’m AdamMorgan
+- 🌱 I’m currently in high-school 
+- 📫 How to reach me 2172647863 or my Gmail adamsfunny15@gmail.com
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: I love fishing 
